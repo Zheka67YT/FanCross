@@ -26,4 +26,9 @@ MsCookie23
 Events Credits:
 BadAppleLOL - SaltyBoii
 Black Flash Event - Dotzz
-
+Change Scrolltype By Rodney~ An Imaginative Furball
+Cinematics By (Can't Find)
+Fake Timer By DoritosDude76
+Flash Event (2 Of Them) (I FORGOR💀)
+Hide Arrows (Can't Find)
+Hide HUD (gamebanana questions)
