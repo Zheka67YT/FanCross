@@ -32,3 +32,8 @@ Fake Timer By DoritosDude76
 Flash Event (2 Of Them) (I FORGOR💀)
 Hide Arrows (Can't Find)
 Hide HUD (gamebanana questions)
+IMAGE FLASH Event Xafier777
+Note Spin Event by (IFORGOR💀💀💀💀)
+Stage Change Event By: Rodney~ An Imaginative Furball Vyxia Superpowers04
+Toggle Trail Event By: Provoked
+
