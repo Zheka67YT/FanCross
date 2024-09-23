@@ -21,3 +21,11 @@ ZHEKA
 
 You! Can Make Us More Popular!
 Thanks, For You Being Here
+
+
+SPECIAL CREDITS:
+
+BASYA CREATOR: Alex Crish
+Undertale Creator: Toby Fox
+Last Breath Creator: UlbTeam
+Talking Red Creator:![{81F2EBF1-5C17-4517-8327-586C03C91D52}](https://github.com/user-attachments/assets/66de44b0-efc4-4b49-a413-61fece54d18a) What the...
