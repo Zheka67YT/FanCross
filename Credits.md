@@ -71,3 +71,22 @@ Toggle Trail Event By: Provoked
 Window Name Event By: (From Event Mix)
 
 Zoom Camera Event By: (From Event Mix)
+
+
+SPECIAL CREDITS:
+
+BASYA CREATOR: Alex Crish
+
+Undertale Creator: Toby Fox
+
+Last Breath Creator: UlbTeam
+
+Talking Red Creator: ![{6F0F5042-8950-4BD3-9EA5-A8AC69AC5645}](https://github.com/user-attachments/assets/d8c60ac8-bc1c-4795-898a-de0eaa8b0b33) What the...
+
+Dead Air By: Vladosikos17
+
+Raldi's CrankHouse By: Roneskj15
+
+SubterBaldi Game By: RedZilz (Baldus Video On Gamebanana Page)
+
+That's All!!!!!!!!!!!!
