@@ -36,4 +36,6 @@ IMAGE FLASH Event Xafier777
 Note Spin Event by (IFORGOR💀💀💀💀)
 Stage Change Event By: Rodney~ An Imaginative Furball Vyxia Superpowers04
 Toggle Trail Event By: Provoked
+Window Name Event By: (From Event Mix)
+Zoom Camera Event By: (From Event Mix)
 
